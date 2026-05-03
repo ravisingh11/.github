@@ -40,9 +40,8 @@ Thinking is easy. Operating is hard.
 
 ### Writing & Thinking
 
-- [Substack](#)
-- [LinkedIn](#)
+- [Substack](https://ravisingh0.substack.com)
+- [LinkedIn](https://www.linkedin.com/in/ravisingh0/) (where I post real takes, not recycled ones) 
 
 ### Contact
-
 Open to strategic conversations and select investments.
