@@ -23,7 +23,7 @@ I run product and engineering organizations.
 - Multi-tenant AI platforms
 - Investing in companies that operate differently
 
-Thinking is easy. Operating is hard.
+Ideas are pale offerings on the altar of execution.
 
 ### Philosophy
 
